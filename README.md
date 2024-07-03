@@ -1,0 +1,1 @@
+# insured_mine_assignment
